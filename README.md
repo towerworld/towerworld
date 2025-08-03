@@ -1,1 +1,13 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=500&color=C34F24&center=true&multiline=true&width=435&height=100&lines=WHY+DOES+IT+HURT+TO+LOVE+YOU%3F;I+DONT+KNOW." alt="Typing SVG" /></a>
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀tbh this whole thing is a wip so lol
+
+  ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ 　![](https://file.garden/ZykWd5jJbymhWT_n/Untitled128_20250803050732.png)
+                                            
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀　⠀⠀⠀⠀⠀　⠀ ⠀![](https://komarev.com/ghpvc/?username=towerworld&style=plastic&color=97A4B8&label=visitors)
+                 
+　　　　　　　　　　　　  　    　        　　 　 　  　        　　working on straw ![](https://file.garden/ZykWd5jJbymhWT_n/IMG_1848.gif)⠀[ata (wip)](https://scrapper.atabook.org/)
+                                                   
+　　　　　　　　　　　　　　　　　　　　　　　　dnc+h , int first pls , iayor
+                                                                                                                                                    
+
+
+　　　　　　　　　　　　　　　　　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wcfyhldtaythgl5sgvcjouezne&cover_image=true&theme=novatorem&show_offline=false&background_color=ffac80&interchange=false&bar_color=e17e2d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
