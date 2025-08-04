@@ -6,7 +6,7 @@
    
 ![](https://komarev.com/ghpvc/?username=towerworld&style=plastic&color=97A4B8&label=Scouts)
                  
- 𝘴𝘵𝘳𝘢𝘸 𝘴𝘰𝘰𝘯 ![](https://file.garden/ZykWd5jJbymhWT_n/IMG_1848.gif)⠀[𝚊𝚝𝚊](https://scrapper.atabook.org/)               
+ [dir](https://guns.lol/towerworld)               
 </div> <div align="center"> 𝚍𝚗𝚌+𝚑 ⠀⠀'  ⠀⠀𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝 𝚙𝚕𝚜  ⠀⠀'  ⠀⠀𝚒𝚊𝚢𝚘𝚛
                                                                                                                                                        
 
