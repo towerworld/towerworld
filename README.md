@@ -1,12 +1,15 @@
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀tbh this whole thing is a wip so lol
 
   ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ 　![](https://file.garden/ZykWd5jJbymhWT_n/Untitled128_20250803050732.png)
-                                            
+
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀scrapper / fool
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀they ' them
+
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀　⠀⠀⠀⠀⠀　⠀ ⠀![](https://komarev.com/ghpvc/?username=towerworld&style=plastic&color=97A4B8&label=visitors)
                  
 　　　　　　　　　　　　  　    　        　　 　 　  　        　　working on straw ![](https://file.garden/ZykWd5jJbymhWT_n/IMG_1848.gif)⠀[ata (wip)](https://scrapper.atabook.org/)
                                                    
-　　　　　　　　　　　　　　　　　　　　　　　　dnc+h , int first pls , iayor
+　　　　　　　　　　　　　　　　　 ⠀⠀ ⠀⠀　　dnc+h ⠀⠀'  ⠀⠀int first pls  ⠀⠀'  ⠀⠀iayor
                                                                                                                                                     
 
 
