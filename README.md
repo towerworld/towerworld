@@ -8,7 +8,3 @@
                  
  [dir](https://guns.lol/towerworld)               
 </div> <div align="center"> 𝚍𝚗𝚌+𝚑 ⠀⠀'  ⠀⠀𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝 𝚙𝚕𝚜  ⠀⠀'  ⠀⠀𝚒𝚊𝚢𝚘𝚛
-                                                                                                                                                       
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wcfyhldtaythgl5sgvcjouezne&cover_image=true&theme=novatorem&show_offline=false&background_color=ffac80&interchange=false&bar_color=e17e2d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
