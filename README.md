@@ -8,7 +8,7 @@
    
 ![](https://komarev.com/ghpvc/?username=towerworld&style=plastic&color=97A4B8&label=Scouts)
                  
- [dir](https://guns.lol/towerworld)               
+ [directory](https://guns.lol/towerworld)               
 </div> <div align="center"> 𝚍𝚗𝚌+𝚑 ⠀⠀'  ⠀⠀𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝 𝚙𝚕𝚜  ⠀⠀'  ⠀⠀𝚒𝚊𝚢𝚘𝚛
 
 </div> <div align="right"> ...𝖨 𝗇𝖾𝗏𝖾𝗋 𝗄𝗇𝖾𝗐 𝗌𝗈𝗆𝖾𝖻𝗈𝖽𝗒 𝗅𝗂𝗄𝖾 𝗒𝗈𝗎 ❞
