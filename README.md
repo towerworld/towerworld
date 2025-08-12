@@ -1,4 +1,6 @@
 </div> <div align="center">
+ 
+![](https://file.garden/ZykWd5jJbymhWT_n/Untitled89-20240831153936.png)
 
  ![](https://file.garden/ZykWd5jJbymhWT_n/IMG_2505.png#left)
 </div> <div align="center"> 𝚝𝚑𝚎𝚢 ' 𝚝𝚑𝚎𝚖
@@ -10,3 +12,5 @@
 </div> <div align="center">   (⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐)
 </div> <div align="center"> 𝚍𝚗𝚌+𝚑𝚞𝚏  ⠀⠀'  ⠀⠀𝚒𝚗𝚝 𝚏𝚒𝚛𝚜𝚝 𝚙𝚕𝚜  ⠀⠀'  ⠀⠀𝚒𝚊𝚢𝚘𝚛
 </div> <div align="center"> promise to make this look pretty later
+ 
+![](https://file.garden/ZykWd5jJbymhWT_n/Untitled89-20240831153942.png)
